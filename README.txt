@@ -1,0 +1,3 @@
+Kilimanjaro
+No
+Никак
